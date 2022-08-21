@@ -1,1 +1,1 @@
-great
+greatness only
